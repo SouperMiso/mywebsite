@@ -1,5 +1,5 @@
 ## Welcome to My Website!
-# About Me
+### About Me
 
 My name is MinSeo Kim. My name is funny because it's supposed to be the direct pronounciation of my Korean name in English. The thing is, in Korean, my brother, Junseo, has the same ending of **"Seo,"** however my **"S"** is capitalized while his isn't. _Weird,_ right?
 
