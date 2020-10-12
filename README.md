@@ -10,4 +10,4 @@ Also, here are a few pictures I drew!
 
 ![Image](https://cdn.discordapp.com/attachments/752755795803766785/761480450203189268/unknown.png)
 
-![Image](https://cdn.discordapp.com/attachments/710935521907703862/765062575120711691/Jokes_over_emote_discord.png)
+![Image](https://cdn.discordapp.com/attachments/760215809871183872/765062949370855455/Jokes_over_emote_discord.png)
