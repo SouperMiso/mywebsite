@@ -9,4 +9,5 @@ If you wanna see some stuff I've made, here's my YouTube Channel! [Link](https:/
 Also, here are a few pictures I drew!
 
 ![Image](https://cdn.discordapp.com/attachments/752755795803766785/761480450203189268/unknown.png)
+
 ![Image](https://cdn.discordapp.com/attachments/710935521907703862/765062575120711691/Jokes_over_emote_discord.png)
